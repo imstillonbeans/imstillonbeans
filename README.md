@@ -8,7 +8,7 @@
  ╚════╝ ╚═╝  ╚═╝ ╚═════╝╚═╝  ╚═╝
 ```
 
-**Building AI products. Studying business. Colorado Springs → CU Boulder.**
+**Ethically applying & implementing AI into everyday life.  Colorado Springs → CU Boulder.**
 
 </div>
 
