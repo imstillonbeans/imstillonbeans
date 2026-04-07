@@ -22,9 +22,8 @@
 
 ---
 
-### ↗ Headed
 
-Business degree → Leeds School of Business · AI products that scale without me · Multiple income streams that compound
+Business degree | Leeds School of Business 
 
 ---
 
